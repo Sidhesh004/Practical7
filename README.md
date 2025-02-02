@@ -1,2 +1,2 @@
 # Practical7
-![Image](https://github.com/user-attachments/assets/8e339fb2-dc7e-474c-9288-1c9e4b05040c)
+![Image](https://github.com/user-attachments/assets/d61d8aba-bb3d-4f05-9c3b-1bc01f96d21d)
